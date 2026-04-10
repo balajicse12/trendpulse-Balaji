@@ -1,0 +1,2 @@
+# trendpulse-Balaji
+Mini Project 
